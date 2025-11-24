@@ -1,2 +1,2 @@
-#NEOCHRIN WEBSİTE
-Bu website alibabaD44 tarafından tasarlanmıştır
+Bu website alibabaD44 tarafından tasarlanmıştır.
+
